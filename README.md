@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @timkastner
+- 🌱 I’m currently learning school :<
+- 📫 How to reach me: das_kampfferkel Discord :>
